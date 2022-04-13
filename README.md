@@ -1,1 +1,0 @@
-# yurtkan.github.io
